@@ -1,1 +1,1 @@
-# BEP-20-USDT-Token-USDT-
+# -USDT-Token-USDT-
